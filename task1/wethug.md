@@ -1,1 +1,0 @@
-A bad bush is better than the open field.
